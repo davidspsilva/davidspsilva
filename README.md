@@ -4,7 +4,7 @@
 - 💞️ I’m lookingod bless you ffg to collaborate on ...
 - 📫 How to reach me ...miss you ff
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...cuijingfei is my wife,my life, my love
+- ⚡ Fun fact: ...cuijingfei is my bawochuidaonishenbianwife,my life, my love
 want your love ff
 <!---yu and family,you are my family
 davids
